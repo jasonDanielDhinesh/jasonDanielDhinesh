@@ -10,6 +10,6 @@ international olympiad of informatics
 
 and the international mathmatical olypiad
 
-You can dm me one discord 
+You can dm me on discord 
 
 Username: --King #7104
